@@ -1,0 +1,1 @@
+rengoku killed by akaza
